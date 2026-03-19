@@ -1,3 +1,3 @@
 ### Hi there!
 
-will update more of this once im not busy ;) thx
+will update more of my designs once im not busy ;) thx
